@@ -1,1 +1,0 @@
-# iphone13_blueprints
